@@ -1,8 +1,8 @@
 ![line](https://github.com/AnderMendoza/AnderMendoza/raw/main/assets/line-neon.gif)
 
-# 𝕮𝖍𝖎𝖓𝖆 𝖇𝖞 𝕸𝖎𝖆 🇨🇳
+# 𝕮𝖍𝖎𝖓𝖆 𝕭𝖔𝖙 𝕻𝖔𝖜𝖊𝖗𝖊𝖉 𝖇𝖞 𝕸𝖎𝖆 🇨🇳
 
-> *🇨🇳* **El mejor Bot de WhatsApp** *🇨🇳*
+> *🇨🇳* **𝐁𝐎𝐓 𝐏𝐀𝐑𝐀 𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏** *🇨🇳*
 
 <h1 align="center">𝑳𝒖𝒏𝒂 - 𝑻𝒆𝒂𝒎</h1>
 <p align="center">
