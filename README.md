@@ -1,10 +1,10 @@
 ![line](https://github.com/AnderMendoza/AnderMendoza/raw/main/assets/line-neon.gif)
 
-# Deja tu estrellita 🌟 
+# 𝕮𝖍𝖎𝖓𝖆 𝖇𝖞 𝕸𝖎𝖆 🇨🇳
 
-> *👑* **El mejor Bot de WhatsApp** *⚔️*
+> *🇨🇳* **El mejor Bot de WhatsApp** *🇨🇳*
 
-<h1 align="center">Black - Clover</h1>
+<h1 align="center">𝑳𝒖𝒏𝒂 - 𝑻𝒆𝒂𝒎</h1>
 <p align="center">
   <img src="https://files.catbox.moe/hfyyh5.jpg" width="300">
 </p>
